@@ -1,5 +1,5 @@
 
-### Hi there 👋, Himanto Shakib
+### Hi 👋, Himanto Shakib
 #### I am student of BUBT
 ![I am student of BUBT](https://www.facebook.com/himanto.shakib?mibextid=ZbWKwL)
 
